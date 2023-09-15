@@ -1,5 +1,5 @@
 # Social-media
-- 💢 Instagram: https://instagram.com/m0jtaba_maleki/
-- ✨ Website: https://m0jtabamaleki.wordpress.com/
+- 💢 Instagram: https://instagram.com/not.avilable/
+- ✨ Website: https://......../
 
 - 🤍 Thanks for follow
